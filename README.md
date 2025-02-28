@@ -1,5 +1,24 @@
 Ludo is a classic board game that combines elements of strategy and chance, making it a favorite among players worldwide. The game involves racing four tokens from start to finish based on dice rolls, with the objective of being the first to get all tokens to the center of the board.
 https://play.google.com/store/apps/details?id=np.smaittechnology.ludo
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
+https://thegdwc.com/pages/game.php?game_guid=cc168e38-630b-4c9e-8dfa-d0f8c7ed8de5
 Top Features:
 https://play.google.com/store/apps/details?id=np.smaittechnology.ludo
 Choose Your Dice: Personalize your game by selecting your preferred home base dice (1 or 6).
